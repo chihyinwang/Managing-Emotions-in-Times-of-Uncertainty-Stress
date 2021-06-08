@@ -20,3 +20,9 @@ The notes I took in class - Managing Emotions in Times of Uncertainty &amp; Stre
 - X axis → pleasantness
 - Y axis → energy
 - 幫我們了解自己處在哪個狀態，如何形容我們的情緒。
+
+## 🔷 Differences in Understanding Emotions
+
+- 個人因素、文化因素、...，同一件事對每個人情緒的影響都不。
+- 我們傾向認為其他人的反應會跟自己一樣，而實際上卻不是這樣。
+- 辨認自己的情緒 exercise
