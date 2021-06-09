@@ -26,3 +26,8 @@ The notes I took in class - Managing Emotions in Times of Uncertainty &amp; Stre
 - 個人因素、文化因素、...，同一件事對每個人情緒的影響都不。
 - 我們傾向認為其他人的反應會跟自己一樣，而實際上卻不是這樣。
 - 辨認自己的情緒 exercise
+
+## 🔷 Influence of Our Emotions
+
+- 我們的情緒會影響我們的判斷。
+- 情緒也會影響身邊的人，我們應該要想想自己現在的情緒是否對現況有幫助，如果沒有，切換一個吧！意識到這件事是很重要的。
