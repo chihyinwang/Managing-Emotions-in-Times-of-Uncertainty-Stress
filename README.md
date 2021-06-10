@@ -31,3 +31,24 @@ The notes I took in class - Managing Emotions in Times of Uncertainty &amp; Stre
 
 - 我們的情緒會影響我們的判斷。
 - 情緒也會影響身邊的人，我們應該要想想自己現在的情緒是否對現況有幫助，如果沒有，切換一個吧！意識到這件事是很重要的。
+
+# 📍 Managing Our Own with Action Strategies
+
+## 🔷 Making Sense of How We Feel
+
+### 🔶 Brain
+
+✳️ 邊緣系統（Limbic System）
+
+- 處理進來的資訊是否構成威脅
+- Fight, Flight, and Freeze
+- 可怕的記憶也會儲存在這裡，讓我們預防未來的可怕事件
+
+✳️ 前額葉皮質（Prefrontal Cortex）
+
+- 思考、計畫、分析，幫助我們綜觀全局，和用不同的角度思考
+- 極度緊張時，邊緣系統會主導，無法存取前額葉皮質，所以我們會無法思考
+
+✳️ 該做什麼
+
+- 長期高壓下，會耗損這些器官，我們需要平衡開心與不開心的情緒（不是追求全部開心）
