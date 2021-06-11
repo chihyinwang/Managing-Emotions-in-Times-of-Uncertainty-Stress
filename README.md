@@ -52,3 +52,21 @@ The notes I took in class - Managing Emotions in Times of Uncertainty &amp; Stre
 ✳️ 該做什麼
 
 - 長期高壓下，會耗損這些器官，我們需要平衡開心與不開心的情緒（不是追求全部開心）
+
+## 🔷 Strategies for Managing Emotions
+
+✳️ 行動策略
+
+- 深呼吸
+- 和朋友聊聊
+
+✳️ 思考策略
+
+- Reframe the situation
+
+✳️ 該做什麼
+
+- 無論策略是什麼，Be consistent
+    - 幫助我們成長的策略
+    - 幫助我們維繫感情的策略
+    - 幫助我們成為更好的人，達成成就的策略
