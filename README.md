@@ -70,3 +70,13 @@ The notes I took in class - Managing Emotions in Times of Uncertainty &amp; Stre
     - 幫助我們成長的策略
     - 幫助我們維繫感情的策略
     - 幫助我們成為更好的人，達成成就的策略
+
+### 🔶 Breathing
+
+- 更多氧氣讓我們能不受壓力或興奮去阻擋我們思考
+
+✳️ Mindful Breathing Exercise
+
+- 軀幹打直
+- 慢慢的呼吸（cue：“in”, “out”）
+- 想想現在自己的感受如何
