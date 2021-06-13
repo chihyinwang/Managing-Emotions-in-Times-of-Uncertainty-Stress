@@ -80,3 +80,37 @@ The notes I took in class - Managing Emotions in Times of Uncertainty &amp; Stre
 - 軀幹打直
 - 慢慢的呼吸（cue：“in”, “out”）
 - 想想現在自己的感受如何
+
+# 📍 Managing Emotions by Shifting How We Think
+
+## 🔷 Thought Strategies
+
+### 🔶 Positive Self-Talk
+
+✳️ Self-Talk
+
+- 可能是正面、也可能是負面的。
+- 我們平常對自己說的話，常常就是來自別人對我們的評語。
+- 我們對自己說的話，有時也會影響他人，讓他人也跟著說一樣的話。
+→ 若不想把不好的 Self-Talk 傳給他人，就從自己開始。
+- 如果我們對別人都不會說出這些負面的話，為什麼要對自己說呢？
+
+Be a kind and supportive friend to your self.
+
+✳️ Positive Self-Talk
+
+- Positive Self-Talk 幫我們累積自信、讓我們繼續前進
+- "I'm such an idiot."
+ → "Everyone makes mistakes. What can I learn from this and do differently next time?"
+- "I can't help this child. The need is too great."
+→ "What can I do in this moment to make this child feel safe and cared for at school? What can I control in this child's life to support them?"
+- "I'm overwhelmed and can't give enough to my job or family."
+→ "I'm doing the best I can, and many people value and appreciate me."
+- "I'm never going to be able to complete this task. I'm being pulled in way too many directions."
+→ "I can do this - one task at a time. Prioritize what's most important. Do your best; forget the rest."
+- "I'm taking one step at a time."
+- "It's okay to feel this way."
+- "I may not know the answer now, but it'll become clear."
+- "Look at the facts to make the next best decision."
+- "I'm being the best that I can be right now."
+- "I made a mistake; I can and will go back and repair this."
