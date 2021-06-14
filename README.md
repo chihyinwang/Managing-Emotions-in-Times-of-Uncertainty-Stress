@@ -121,3 +121,15 @@ Be a kind and supportive friend to your self.
 - 不是拒絕現況，而是了解現在的情緒，並開闊自己的觀點
 - Humor
 - 想想過去發生過同樣事情的人怎麼做的
+
+### 🔶 Mindfulness
+
+1. Present-Centered Attention
+    - 專注在呼吸上
+    - 慢慢把注意力放回到自己身上
+2. Open-Nonjudgmental Awareness
+    - 觀察，而不要想著去改變
+    - 分清楚發生的事情和自己的感受
+    - 不被情緒的浪打走
+
+當情緒來臨時，試著先做練習（冷靜後），再做反應。
