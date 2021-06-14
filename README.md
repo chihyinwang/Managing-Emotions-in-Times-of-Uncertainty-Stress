@@ -114,3 +114,10 @@ Be a kind and supportive friend to your self.
 - "Look at the facts to make the next best decision."
 - "I'm being the best that I can be right now."
 - "I made a mistake; I can and will go back and repair this."
+
+### 🔶 Positive Reframing
+
+- 用新的角度看待事情
+- 不是拒絕現況，而是了解現在的情緒，並開闊自己的觀點
+- Humor
+- 想想過去發生過同樣事情的人怎麼做的
