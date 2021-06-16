@@ -133,3 +133,14 @@ Be a kind and supportive friend to your self.
     - 不被情緒的浪打走
 
 當情緒來臨時，試著先做練習（冷靜後），再做反應。
+
+# 📍 Becoming a Culturally Responsive Emotion Scientist
+
+## 🔷 Defining an Emotion Scientist
+
+- 不用批評的眼光去理解及觀察
+- Active Listening，觀察字詞的細節、表達、動作
+- 思考、掌握自己的情緒
+- 意識到自己正對他人批評，並撤銷這些批評
+- 去問對方的想法和意見從何而來
+- 有開放的心胸，去接受改變
