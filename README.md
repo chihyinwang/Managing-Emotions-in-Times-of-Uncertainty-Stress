@@ -144,3 +144,9 @@ Be a kind and supportive friend to your self.
 - 意識到自己正對他人批評，並撤銷這些批評
 - 去問對方的想法和意見從何而來
 - 有開放的心胸，去接受改變
+
+### 🔶 Emotion Scientist vs Emotion Judge
+
+- 別自己為了解對方的情緒，應該用問題去了解
+
+Behavior doesn't equal emotion.
