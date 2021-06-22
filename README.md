@@ -166,3 +166,14 @@ Behavior doesn't equal emotion.
 - 感知自己情緒的能力
 - 了解其他文化
 - 了解別人的背景
+
+## 🔷 Perspective Taking and Biases
+
+### 🔶 Blindspot-Hidden Biases of Good People
+
+✳️ 為了了解別人，我們要問對方問題，可是會有兩個 problem
+
+1. 對方不想講，因為是私事
+2. 我們的想法與腦內的想法是不同的
+    - 不是說我們無法說出我們所想，而是我們所想的，與我們大腦所想的可能不一樣
+    - 教授舉：她自己是在外工作的人，但她腦子卻還是對「女人在家」聯想比「男人在家」還快
