@@ -177,3 +177,8 @@ Behavior doesn't equal emotion.
 2. 我們的想法與腦內的想法是不同的
     - 不是說我們無法說出我們所想，而是我們所想的，與我們大腦所想的可能不一樣
     - 教授舉：她自己是在外工作的人，但她腦子卻還是對「女人在家」聯想比「男人在家」還快
+
+### 🔶 Diversity and Inclusion in Leadership
+
+- Out of shape
+    - 就像我們要去健身房練身體，如果我們不常常練習了解、練習認識文化，那我們也會 out of shape
