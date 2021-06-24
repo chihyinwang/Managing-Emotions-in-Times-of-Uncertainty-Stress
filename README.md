@@ -182,3 +182,13 @@ Behavior doesn't equal emotion.
 
 - Out of shape
     - 就像我們要去健身房練身體，如果我們不常常練習了解、練習認識文化，那我們也會 out of shape
+
+# 📍 Identify Other's Emotions
+
+## 🔷 Understanding Others' Feelings
+
+### 🔶 Barrier
+
+- 有時我們會因為想要對方是什麼情緒，誤判對方的情緒
+- 我們想控制對方的情緒
+- Sympathetic Distress
