@@ -198,3 +198,11 @@ Behavior doesn't equal emotion.
 - 我們通常更能辨認出熟人的情緒
 - 再碰到不熟的人時，我們會有[要接觸]還是[遠離]的情緒。
     - 因此，我們要有足夠的心智，去阻止我們的情緒，影響我們的判斷。
+
+## 🔷 What Differences are Harder to Bridge?
+
+### 🔶 Differences
+
+- Age
+- Temperament / Personalities
+- Gender, Culture, Power
