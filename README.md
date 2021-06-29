@@ -212,3 +212,23 @@ Behavior doesn't equal emotion.
 - 觀察自己有哪些偏見，自己是否因為對某些人有偏見而不理會他們的意見/感覺
 - 創造一個容易訴說的環境
 - 了解 Context 的重要性，大家在不同背景下，對不同的環境都會有不同反應
+
+## 🔷 Behavior Doesn't Equal Emotion
+
+### 🔶 Inside v.s. Outside Feelings
+
+- 以壓力為例，感受到壓力，可能會阻礙學習、降低好奇心...等表現
+- 缺乏安全感和陪伴時，也可能會拒絕參與、霸凌、完美主義...等表現
+
+"~~What's wrong with this person?~~" 
+→ "What happened to this person? 
+→ "What is this behavior trying to tell us?"
+
+> The kids who need the most love will ask for it in the most unloving of ways.
+— Russell A. Barkley
+
+✳️ What to do?
+
+- 記得 Emotion Scientist 的角色
+- 保持好奇，發現線索
+- 多練習
