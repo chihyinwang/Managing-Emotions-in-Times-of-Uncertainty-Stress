@@ -232,3 +232,13 @@ Behavior doesn't equal emotion.
 - 記得 Emotion Scientist 的角色
 - 保持好奇，發現線索
 - 多練習
+
+# 📍 Help Others Manage Emotions
+
+## 🔷 Emotion Co-Regulation
+
+### 🔶 Explanation
+
+- 人之間情緒的流動 (不只個體也可以影響群體)
+- 比如說能給人安全感的成人待在小孩旁邊，可以提升小孩處理壓力的能力
+- 指令並不是 Co-Regulation，了解和認知才是
