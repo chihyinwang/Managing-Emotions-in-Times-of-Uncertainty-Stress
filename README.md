@@ -242,3 +242,12 @@ Behavior doesn't equal emotion.
 - 人之間情緒的流動 (不只個體也可以影響群體)
 - 比如說能給人安全感的成人待在小孩旁邊，可以提升小孩處理壓力的能力
 - 指令並不是 Co-Regulation，了解和認知才是
+
+## 🔷 Managing Stressful Moments
+
+### 🔶 Step 1: Managing Your Emotions
+
+- 當你注意到身邊有人的情緒不好時，你同時也在體驗自己的情緒
+- 注意自己的情緒是什麼 → 避免衝動的行動
+- 這減輕我們的壓力，清楚目前的狀況
+- 用一些 positive self talk，比如 "I've got this." "I am a calming force here."
