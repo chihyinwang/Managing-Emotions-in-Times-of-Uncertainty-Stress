@@ -251,3 +251,13 @@ Behavior doesn't equal emotion.
 - 注意自己的情緒是什麼 → 避免衝動的行動
 - 這減輕我們的壓力，清楚目前的狀況
 - 用一些 positive self talk，比如 "I've got this." "I am a calming force here."
+
+### 🔶 Step 2: Helping others with Their Emotions
+
+1. Settling the High Energy/Activation
+    - 我們很難在情緒高漲時有清楚的思緒
+    - 此時只要待在身邊，有耐心地聆聽，散步，呼吸，都有幫助
+2. Explore the Story and Feelings
+    - 好奇 (emotion scientist)
+    - 可以說"我看見了什麼事情，後來怎麼了？"
+    - 幫助他們認識自己的情緒 (name it)
