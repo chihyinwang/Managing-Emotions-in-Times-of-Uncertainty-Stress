@@ -261,3 +261,15 @@ Behavior doesn't equal emotion.
     - 好奇 (emotion scientist)
     - 可以說"我看見了什麼事情，後來怎麼了？"
     - 幫助他們認識自己的情緒 (name it)
+
+### 🔶 Step 3: Brainstorm and Strategize
+
+- 在旁邊聆聽，陪著對方一起思考下一步（注意有時對方只是想要被聆聽沒有想要知道下一步）
+- 如何開啟這樣的對話
+    - "What are some ideas you have about how you could deal with this?"
+    - "I wonder what you think you could do next?"
+    - "What would you advise your best friend to do in this situation if she was feeling how you feel?"
+- 如何給予意見
+    - "Can I help you think about what your next step might be?"
+    - "Is there anything I can do?"
+    - "Would you like me to offer some ideas?"
