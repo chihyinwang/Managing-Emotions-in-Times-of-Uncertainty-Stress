@@ -273,3 +273,8 @@ Behavior doesn't equal emotion.
     - "Can I help you think about what your next step might be?"
     - "Is there anything I can do?"
     - "Would you like me to offer some ideas?"
+
+### 🔶 Step 4: Close the Conversation
+
+- 盡量用正面、具體的想法結束
+- 讓對方知道你還會再來關心他們
